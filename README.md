@@ -1,0 +1,1 @@
+# Lenovo-S145-15IWL-MacOS-Catalina-EFI
